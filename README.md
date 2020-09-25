@@ -1,4 +1,4 @@
-### Hi😊 , I'm Yukitaka Iha.
+### Hi😊
 ---
 - [My personal site](https://iavivai.com)
 - [Twitter](https://twitter.com/yukitakaiha)
